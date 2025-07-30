@@ -1,6 +1,6 @@
 # Tab Whisperer Pro 🧘‍♂️
 
-#### Video Demo: <URL HERE>
+#### Video Demo: [<URL HERE>](https://youtu.be/3Bk44mZl5LY)
 
 #### Description:
 
